@@ -1,5 +1,7 @@
 ## Aunt Adeline’s Bequest
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+
+![avatar](https://i.loli.net/2021/09/10/2DCm3fxOpraUMon.png)
 <br>
 <br>
 
